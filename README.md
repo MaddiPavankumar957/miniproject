@@ -1,2 +1,1 @@
-# miniproject
-https://docs.google.com/document/d/1XuzaHHXj3QQcKi5jA0_KVZMLFvYHPOob/edit?usp=drivesdk&amp;ouid=106543387133627802626&amp;rtpof=true&amp;sd=true
+https://drive.google.com/file/d/10luQjeRoUkB3WBeL9-VezHan5SbUVnsM/view?usp=drivesdk
